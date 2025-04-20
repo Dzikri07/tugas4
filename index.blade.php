@@ -17,3 +17,9 @@ Da-ri-dam, da-ri-dam, tteugeowojin pulse
 Da-ri-dam, da-ri-dam, be my rock and roll
 Tikitaka jakku ullyeodaeneun mami
 Dugeundugeun neoreul umjigiji my beat
+
+[Chorus: Kyujin, Sullyoon]
+Heart, heart, beat, beat, we li-like it
+We don’t sto-op, meomchuji anneun loop
+Ah-ah, beep, beep, ja, sijakae neowa na
+So tell me what you're waiting for (NMIXX, hey)
