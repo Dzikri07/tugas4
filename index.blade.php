@@ -23,3 +23,14 @@ Heart, heart, beat, beat, we li-like it
 We don’t sto-op, meomchuji anneun loop
 Ah-ah, beep, beep, ja, sijakae neowa na
 So tell me what you're waiting for (NMIXX, hey)
+
+
+[Verse 2: Jiwoo, Sullyoon, Bae]
+Nunapui new way
+Tteollineun teuraegi dwae
+Byeori morachideusi (Uh-huh)
+Ssodajyeo uri heartbeat (uri heartbeat)
+Come on and let's dance together
+Matchwoga dulmanui sign (A sign)
+Jugobanneun tension soge
+We high, high five
