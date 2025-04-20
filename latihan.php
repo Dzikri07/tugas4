@@ -27,3 +27,6 @@
 
     echo 'hello world'.PHP_EOL;
     echo 'nama saya';
+
+    var_dump (123.25);
+    var_dump (true);
