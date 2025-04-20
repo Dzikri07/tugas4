@@ -30,3 +30,5 @@
 
     var_dump (123.25);
     var_dump (true);
+
+    // haiyaaa
